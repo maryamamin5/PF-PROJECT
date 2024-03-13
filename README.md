@@ -1,0 +1,1 @@
+A quiz game is an interactive activity designed to test players' knowledge on various topics or subjects. Typically, participants are presented with a series of questions, and they must provide answers within a certain timeframe. The questions may cover a wide range of topics such as history, science, pop culture, sports, geography, and more.
